@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @RomeesaKamal
-- 👀 I’m interested in sketching.
+- 🎨 I’m passionate about sketching, using lines and shades to bring ideas to life and express my creativity.
 - 🌱 I’m currently learning HTML, CSS and Javascript.
 - 💞️ I’m looking to collaborate on with other content creator.
 - 📫 How to reach me : kamalromeesa@gmail.com
